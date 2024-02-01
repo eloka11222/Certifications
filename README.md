@@ -22,7 +22,7 @@
 
 [Coursera: Data Analysis with Python](https://www.credly.com/badges/b7b8313f-11d5-451d-8599-2753166140fe?source=linked_in_profile)
 
-
+[Other Certificates](https://www.linkedin.com/in/asoh-eloka-603700221/details/certifications)
 
 
 
