@@ -16,7 +16,7 @@
 
 [Jobberman: Soft Skills Certificate](https://cutt.ly/nJk0pNb)
 
-[CFI: Prodessional Ethics](https://www.credential.net/4020b0f5-d465-40bf-a5d5-9d5929126e6c)
+[CFI: Professional Ethics](https://www.credential.net/4020b0f5-d465-40bf-a5d5-9d5929126e6c)
 
 [CFI: Excel Fundamentals for Finance](https://www.credential.net/ebd6eb9a-cff3-4cce-a036-a4acc9ce8854)
 
